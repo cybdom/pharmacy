@@ -4,10 +4,10 @@ Time spent: 2 hrs 41 mins || hourly rate: 40usd || contact me: @cybdom (twitter)
 Buy me coffee => https://www.buymeacoffee.com/bi3cp0Zk5
 
 Results:
+
 <img src="screenshot_1.png" height="480px"> 
 <img src="screenshot_2.png" height="480px"> 
 <img src="screenshot_3.png" height="480px"> 
-<img src="final.png" height="480px"> 
 
 ## Getting Started
 
