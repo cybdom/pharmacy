@@ -1,5 +1,5 @@
 # pharmacy
-Time spent: 2 hrs 41 mins || hourly rate: 40usd || contact me: @cybdom (twitter) - contact@cybdom.tech (email)
+Time spent: 2 hrs 41 mins || contact me: @cybdom (twitter) - contact@cybdom.tech (email)
 
 Buy me coffee => https://www.buymeacoffee.com/bi3cp0Zk5
 
